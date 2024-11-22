@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Dengito
+- 📫 How to reach me Dengito.plays@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: im him check me out here https://linktr.ee/dengitonft
